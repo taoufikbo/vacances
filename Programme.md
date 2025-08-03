@@ -1,73 +1,183 @@
-# 🗓️ Récapitulatif du séjour - Août 2025
+# 🇬🇧 Séjour Angleterre en famille – Août 2025
 
-## 🔁 Vue d'ensemble
-- 🚗 Transport : Voiture de location (électrique ou essence selon choix final)
-- 👨‍👩‍👧‍👦 Participants : 2 adultes, 3 enfants
-- 📍 Itinéraire :
-  - **4 au 11 août** : Trecco Bay
-  - **11 au 15 août** : Birmingham (2BR City Centre)
-  - **15 au 18 août** : Londres (Ibis Whitechapel)
+## 🚗 4 août (lundi) – Arrivée à Bristol / Trajet vers Trecco Bay
 
----
-
-## 📍 Trecco Bay (du 4 au 11 août)
-
-| Date       | Matin (8h–12h)                           | Après-midi (13h–17h)                               | Soirée (18h–22h)                              |
-|------------|------------------------------------------|---------------------------------------------------|-----------------------------------------------|
-| 4 août     | 🚗 Arrivée à Bristol 12h<br>Déjeuner | 🏊‍♂️ **Piscine sur le trajet** (Pontypridd Lido) <br> 🏠 Check-in Trecco Bay 16h | 🍽️ Dîner maison <br> 🚿 Douche <br> 🎲 Jeux calmes |
-| 5 août     | 9h Réveil <br>🥐 Petit-déjeuner<br>🏖️ Plage de Trecco Bay | 🎡 Parc d'attraction Barry Island *(Alternative : balade en bord de mer)* | 🍽️ Dîner <br> 🚿 Douche <br> 🎬 Film familial |
-| 6 août     | 🐴 Poney centre <br>🌳 Parc <br>🥐 | 🏊‍♂️ Centre aquatique Bridgend *(Alternative : cinéma)* | 🍕 Pizza Night <br> 🎮 Jeux vidéo éducatifs |
-| 7 août     | 🌲 Randonnée Ogmore by Sea <br>🌊 | ⛱️ Farniente plage <br>🛍️ Shopping *(Alternative : aquarium)* | 🍽️ Dîner au resto local halal <br> 🚿 |
-| 8 août     | 🏊‍♂️ Piscine 11h15 | 🏊‍♂️ Piscine 14h45<br> Alternative : Crazy golf | 🏊‍♂️ Piscine 18h15 |
-| 9 août     | 🌧️ Musée *(en cas de pluie)* <br>🏖️ | 🏊‍♂️ Piscine 14h30/15h15 *(choix créneau)* | 🏊‍♂️ Piscine 18h45 <br> 🍽️ Soirée calme |
-| 10 août    | 📷 Photos souvenirs <br>🥐 | 🎠 Dernière activité enfant *(gonflables ?)* | 🧳 Préparation valises <br> 🍽️ Dîner simple |
-| 11 août    | 🛌 Réveil 7h <br>🚗 Départ vers Birmingham 9h | 🚗 Arrivée Birmingham 12h <br>Check-in logement | 🛍️ Petite balade <br> 🧘‍♀️ Détente |
+- **09h00** : Arrivée à l'aéroport de Bristol (prévoir toilettes, collation)
+- **10h30** : Passage à une piscine en route → *Cardiff International Pool* (~£5-£7/pers)
+- **13h00** : Déjeuner rapide halal à Cardiff (ex: Mowlana ou Lahmacun Grill)
+- **14h30** : Reprise de la route vers Trecco Bay
+- **16h00** : Check-in Trecco Bay
+- **17h00** : Douche / Repos / Prière
+- **18h30** : Dîner sur place ou takeaway halal
+- **20h00** : Petite balade plage / Sunset
+- **21h30** : Coucher
 
 ---
 
-## 📍 Birmingham (du 11 au 15 août)
+## 🏖️ 5 août (mardi) – Trecco Bay & Cardiff
 
-| Date       | Matin (8h–12h)                                       | Après-midi (13h–17h)                                        | Soirée (18h–22h)                                       |
-|------------|------------------------------------------------------|-------------------------------------------------------------|--------------------------------------------------------|
-| 11 août    | 🛌 Réveil 7h <br>🥐 Petit-déjeuner                    | 🏙️ Balade centre-ville <br>🕌 Mosquée Green Lane *(visite + parc)* | 🍽️ Dîner <br> 🚿 Douche <br> 🎲 Temps libre |
-| 12 août    | 🧗 Ninja Warrior UK Park *(Alternative : Escape room)* | 🛍️ Bullring Centre ou Digbeth Street Art                    | 🍽️ Dîner halal <br>🧘‍♀️ Spa musulman femmes (option) |
-| 13 août    | 📚 Visite Library of Birmingham <br>Canal boat tour   | 🎨 ThinkTank Museum *(Alternative : parc Cannon Hill)*       | 🎬 Cinéma ou activité centre islamique                 |
-| 14 août    | 🧘‍♂️ Activité sportive au centre musulman (femmes/hommes) | 🏞️ Lickey Hills ou visite Cadbury World *(si enfants)*      | 🍽️ Dîner au resto marocain/halal                      |
-| 15 août    | 🧳 Check-out matin <br>🚗 Départ vers Londres         | 🚄 Arrivée Londres 13h30 à l’Ibis Whitechapel               | 🍽️ Dîner quartier Brick Lane <br> 🛌 Douche & repos     |
-
----
-
-## 📍 Londres (du 15 au 18 août)
-
-| Date       | Matin (8h–12h)                                  | Après-midi (13h–17h)                                         | Soirée (18h–22h)                                        |
-|------------|--------------------------------------------------|--------------------------------------------------------------|---------------------------------------------------------|
-| 15 août    | 🧳 Arrivée hôtel Ibis Whitechapel 14h            | 🚶‍♂️ Découverte quartier Whitechapel & mosquée East London | 🍽️ Dîner halal Brick Lane <br> 🚿 Douche & sommeil |
-| 16 août    | 🏰 Tower of London <br>🚶‍♀️ Tower Bridge Walk     | 🛥️ Croisière Thames River (alternatif : parc pour enfants) | 🍽️ Resto indien ou turc <br> 🎲 Jeux ou balade soir |
-| 17 août    | 🏞️ Hyde Park <br>🦒 Natural History Museum        | 🛍️ Oxford Street / Hamleys *(Alternative : Science Museum)* | 🎬 Cinéma ou pique-nique soir au parc                  |
-| 18 août    | 🧳 Check-out 9h <br>🚶 King’s Cross station        | 🕐 Eurostar retour à Paris (horaire selon billet)           | 🛌 Arrivée maison et repos                             |
+- **08h00** : Réveil / Douche / Petit-déj
+- **09h30** : Route vers Cardiff
+  - **Option A** : Musée Techniquest ou Cardiff Castle
+  - **Option B** : Centre commercial St David's
+- **12h30** : Déjeuner halal à Cardiff
+- **14h30** : Parc Bute ou skatepark Imran
+- **17h00** : Retour / Douche
+- **18h30** : Dîner
+- **20h00** : Jeux / Prière / Détente
 
 ---
 
-## 🧮 Estimation des coûts
+## 🏊 6 août (mercredi) – Trecco Bay
 
-| Poste                            | Coût approx. (€) |
-|----------------------------------|------------------|
-| Location voiture (11 jours)      | 450–600          |
-| Essence ou recharge électrique   | 80–120           |
-| Logement Trecco Bay (7 nuits)    | 600–800          |
-| Logement Birmingham (4 nuits)    | 450–600          |
-| Logement Londres (3 nuits)       | 450–600          |
-| Activités / entrées / loisirs    | 300–500          |
-| Repas (5 pers. / jour x 15j)     | 600–900          |
-| Parking / péages / ULEZ          | 50–100           |
-| **Total estimé**                 | **2980–4220 €**   |
+- **08h00** : Réveil / Petit-déj / Douche
+- **10h00** : Balade nature + aire de jeux
+- **12h30** : Déjeuner
+- **14h00** : Repos / Jeux intérieur / Lecture
+- **16h00** : Piscine Trecco Bay (ou plage)
+- **18h30** : Dîner
+- **20h00** : Histoire / coucher tôt
 
 ---
 
-## 🛎️ Notes pratiques
-- 🔌 Recharge électrique : stations à Birmingham et Londres nombreuses, souvent gratuites jusqu’à 1h.
-- 🕌 Centres islamiques : Green Lane Mosque (Birmingham), East London Mosque (Whitechapel).
-- 🚿 Spa musulman : "Ladies Only Spa" ou "Ruhma Therapy" à Birmingham *(prendre RDV)*.
-- 🚫 Zone ULEZ : Londres seulement, bien vérifier l'exonération ou non de la voiture louée.
-- 🧺 Lessive : possible à l’hôtel ou laverie proche (ex. Whitechapel Laundry 24h).
+## 🏊‍♀️ 7 août (jeudi) – Journée AquaFun
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00–12h00** : Activité nautique ou plage
+- **12h30** : Déjeuner
+- **14h45** : Piscine (créneau réservé)  
+- **17h00** : Repos / Douche
+- **18h30** : Dîner takeaway ou sur site
+- **20h00** : Jeux en intérieur
+
+---
+
+## 🚙 8 août (vendredi) – Piscine + Cardiff
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **11h15–12h00** : Piscine
+- **13h00** : Déjeuner
+- **14h45** : Deuxième créneau piscine
+- **16h30** : Repos
+- **18h15** : Troisième créneau piscine
+- **19h30** : Dîner
+- **21h00** : Coucher
+
+---
+
+## 🧳 9 août (samedi) – Dernier jour Trecco Bay
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Plage ou jeux
+- **12h00** : Déjeuner
+- **14h30** : Piscine
+- **18h45** : Dernier créneau piscine
+- **20h00** : Prière / Rangement valises
+
+---
+
+## 🚗 10 août (dimanche) – Route vers Birmingham
+
+- **07h30** : Réveil / Douche / Petit-déj
+- **09h00** : Départ pour Birmingham (~2h30)
+- **12h00** : Déjeuner halal
+- **13h00** : Check-in Airbnb 2BR city centre
+- **14h30** : Centre commercial Bullring ou visite locale
+- **17h30** : Douche / Prière
+- **18h30** : Dîner
+- **20h00** : Détente
+
+---
+
+# 🕌 Birmingham – Muslim-Friendly
+
+## 🧘 11 août (lundi) – Loisirs en centre islamique
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Visite Green Lane Masjid ou Birmingham Central Mosque
+  - **Option femmes** : Accès spa séparé (vérifier horaires)
+  - **Option enfants** : Centre sportif local ou bibliothèque
+- **12h30** : Déjeuner
+- **14h00** : Musée des Sciences ou jardin botanique
+- **17h30** : Douche / Prière
+- **18h30** : Dîner
+
+---
+
+## 🏞️ 12 août (mardi) – Sortie nature
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Sortie au parc Cannon Hill ou Sarehole Mill
+- **12h30** : Pique-nique ou déjeuner halal
+- **14h30** : Repos / Jeu
+- **17h30** : Douche
+- **18h30** : Dîner indien halal ou grill
+
+---
+
+## 🎨 13 août (mercredi) – Culture & Shopping
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Musée d’art / activité créative
+- **12h30** : Déjeuner
+- **14h00** : Shopping souvenirs / quartier musulman
+- **17h00** : Douche / Repos
+- **18h30** : Dîner
+
+---
+
+## 🚗 14 août (jeudi) – Préparation Londres
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Activité légère
+- **12h00** : Déjeuner
+- **14h00** : Valises / check-out
+- **15h00** : Repos / dernière balade
+- **18h00** : Dîner
+
+---
+
+## 🚄 15 août (vendredi) – Départ vers Londres
+
+- **07h30** : Réveil / Douche / Petit-déj
+- **09h00** : Départ vers Londres
+- **12h00** : Arrivée à l’hôtel Ibis Whitechapel
+- **13h00** : Déjeuner
+- **14h30** : Musée des Docklands ou croisière Tamise
+- **17h30** : Repos / Douche
+- **19h00** : Dîner à Brick Lane (halal)
+
+---
+
+# 🏙️ Londres
+
+## 🗺️ 16 août (samedi) – Découverte Londres Est
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : Visite musée / street art Shoreditch
+- **12h30** : Déjeuner halal
+- **14h00** : Marché Spitalfields ou Victoria Park
+- **17h30** : Repos / Douche
+- **19h00** : Dîner indien ou turc
+
+---
+
+## 🎡 17 août (dimanche) – Central London
+
+- **08h00** : Réveil / Douche / Petit-déj
+- **10h00** : London Eye ou promenade Westminster
+- **12h30** : Déjeuner à Southbank
+- **14h30** : Musée d’histoire naturelle ou Hyde Park
+- **17h30** : Douche / Rangement
+- **19h00** : Dernier dîner en famille
+
+---
+
+## 🚄 18 août (lundi) – Retour en Eurostar
+
+- **06h30** : Réveil / Douche / Petit-déj
+- **07h30** : Check-out
+- **08h00** : Transfert vers King’s Cross
+- **09h00** : Enregistrement Eurostar
+- **10h00** : Départ
 
